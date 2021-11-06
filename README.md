@@ -30,3 +30,9 @@ Facebook Page
 
 Telegram
 @rizkiagung.id
+
+Tiktok
+@rizkiagungid
+
+Bussiness and colaboration ?
+whatsaap me 0812-9005-3660
